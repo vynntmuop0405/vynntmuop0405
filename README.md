@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+You can conseder me as the designer of information (❁´◡`❁)
+
 <!--
 **vynntmuop0405/vynntmuop0405** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
